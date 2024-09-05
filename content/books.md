@@ -3,3 +3,6 @@
 - Cosmere/Brandon Sanderson
 	- The Way of Kings
 - Piranesi
+# "Recommendations"
+- [[House of Leaves]]
+- [[The Medium is the Massage]]
