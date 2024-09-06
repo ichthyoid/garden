@@ -8,6 +8,7 @@ tags:
 ---
 i love my friends so much
 - see also: [[the Official Bunnicula Replacements List]]
+![[cozy.png]]
 
 "eggies eggies eggies wearing jeggings on this hallows eve" - dan
 

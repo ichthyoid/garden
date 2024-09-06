@@ -1,4 +1,6 @@
-# Math
+![[jan2.png]]
 # Music
+- [[clarinet]]
+- [[form notes]]
 # Tech
-# Games
+- [[music streaming]]
