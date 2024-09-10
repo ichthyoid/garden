@@ -4,3 +4,4 @@
 - [[form notes]]
 # Tech
 - [[music streaming]]
+- [[the free internet]]
