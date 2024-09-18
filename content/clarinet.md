@@ -6,6 +6,7 @@
 - Ran - For An Actor: Monologue
 - Cahuzac - Arlequin
 - Boots - The Sacred Teaching of the Lonely Goose
+- Sierra - Cinco Bocetos
 ### Accompanied
 - Muczynski - Time Pieces
 - Schumann - Fantasiestücke

@@ -14,7 +14,7 @@ i love my friends so much
 
 "Club me like a baby seal" - elizabeth
 
-"I want to instill fear in the heart if the NSA using furbies" - ryan
+"I want to instill fear in the heart in the NSA using furbies" - ryan
 
 "Cocaine is a gateway drug to dirt" - clare
 
@@ -30,7 +30,7 @@ i love my friends so much
 
 "I'm formally requesting non-attribution on that one" (about previous quote) - ryan
 
-"well there's a corpse, all right!" - max
+"well there's a corpse, all right!" - me
 
 "It's just chugga lugga luggin back there" - ryan
 
@@ -150,6 +150,20 @@ i love my friends so much
 
 "BRING OUT THE DELULU SILLY GOOSE ALT MOMMYS WITH BIG GLASSES AND MYRIAD ISSUES" - ryan
 
-"final tally for last night - women: 0, critical pieces of server architecture updated: 1" - max
+"final tally for last night - women: 0, critical pieces of server architecture updated: 1" - me
 
 "I don't think piss is very marketable" - ryan
+
+"you're not hot enough to be a republican!" - ryan
+
+"I like my propellants like I like my women" - ryan, "...unstable" - me, "you know what I'm here for" - ryan
+
+"go get some war crime money, don't have kids" - ryan
+
+"our bot ratio's going to be close to tinder's!" - ryan
+
+"I'm losing to a swiftie bird" - me
+
+"break beds, not infracture" - ryan
+
+"a second tab has hit the ram" - ryan
