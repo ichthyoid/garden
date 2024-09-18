@@ -164,6 +164,6 @@ i love my friends so much
 
 "I'm losing to a swiftie bird" - me
 
-"break beds, not infracture" - ryan
+"break beds, not infrastructure" - ryan
 
 "a second tab has hit the ram" - ryan
