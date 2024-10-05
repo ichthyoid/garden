@@ -1,0 +1,1 @@
+This website was made with [quartz](https://quartz.jzhao.xyz/)! A super cool tool to transform markdown notes into a website, check out the [showcase](https://quartz.jzhao.xyz/showcase) to see what's possible!

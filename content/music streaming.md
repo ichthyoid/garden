@@ -1,3 +1,7 @@
+---
+title: Music Streaming
+draft: true
+---
 ![[bugbox.png]]
 # The Problem
 

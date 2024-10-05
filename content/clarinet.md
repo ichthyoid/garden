@@ -1,3 +1,8 @@
+---
+title: Clarinet
+---
+# Hardware
+
 # Repertoire
 ## Solos
 ### Unaccompanied
@@ -16,7 +21,7 @@
 ## Etude Books
 - Rose 32 and 40
 - Kell - Staccato Etudes
-- Jeanjean - Modern Etudes
+- Jeanjean - 16 and 18
 ## Other resources
 - Kaplan - Practicing for Artistic Success
 - Jeanjean - Vade-Mecum du Clarinettiste
