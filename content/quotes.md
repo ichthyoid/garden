@@ -167,3 +167,99 @@ i love my friends so much
 "break beds, not infrastructure" - ryan
 
 "a second tab has hit the ram" - ryan
+
+"sing to me, trongle bot" - me
+
+"who needs morals when you have designer" - jecka
+
+"did you know a box condoms costs none innocent lives" - ryan
+
+"squircle was my savior " - ryan
+
+"some 12 year old just tried to out nerd me, get shit on 12 year old" - ryan
+
+"i swear to God i could put cat ears on a delulu goth alt mommy and get you to do whatever I want" - ryan
+
+"I follow and practice on religion, and that's deluluism" - ryan
+
+"Domain expansion, deluluism... ok I'm gonna go touch grass, I feel that was too many levels of dumbass stapled together... domain expansion, dumbass!" - ryan
+
+"Is the sex worth the trauma?" - Ryan. "If the answer was no you would've lived your life very differently" - max
+
+"I am walking up to heaven and boxing my Creator, his son, and whatever winged fuck made me feel this way" - ryan
+
+"I don't want vagrants in my living room" - ryan
+
+"the united states is a pile of trash we keep throwing money at" - unknown, music theory class
+
+"I'm papa gnome now, motherfucker" - ryan
+
+"Therapy? Medication??? gnome!" - ryan
+
+"My face would go up like the hindenburg" - ryan
+
+"Look there's no way I can explain this without sounding like an absolute crank, you'll just have to take the gnome at face value" - ryan
+
+"I gotchu brother, keep gnomin' on" - cami
+
+"When they finally 5150 me, use this as evidence of my declining mental health" - ryan
+
+"I found a lil pouch for my gnomish activities!" - ryan
+
+"Never leave gnome without a gnife" - ryan
+
+"The liberal anti gnome agenda goes too far" - ryan
+
+"What can I say, I'm one hot gnome" - ryan
+
+"Enjoy the gnomery" - ryan
+
+"This furby has an absolute dumptruck" - ryan
+
+"My damnation will be proof that the devil is good" - ryan
+
+"I'm a writer's wet dream, let me tell you, I'm made of plot" - ryan
+
+"I'm the physical manifestation of mankind's stupidity in a localized region" - ryan
+
+"I'm the avatar of fools, hear me go" - ryan
+
+"I can smell the Intel fuckery from here" - ryan
+
+"My steam deck is suckoo enabled " - me
+
+"Listen I pull like a tractor, you know my advice works" - ryan
+
+"if you play German system clarinet you sound like a wet piece of cardboard" - andrew
+
+"no one has ever smiled in front of an atm camera except in front of a strip club at 3am" - ryan
+
+"you know, hid drivers are just bloat when you think about it" - max
+
+"I spent 17 bucks to go 4 blocks... war crimes money!!" - ryan
+
+"I can never run for office" - ryan
+
+"that mermaid was real gay real fast, you can quote me on that one" - ryan
+
+"I've got the max debuff just by being alive" - ryan
+
+"the fish! the fish will have me!" - ryan
+
+"come on, get your murder correct" - ryan
+
+"I'm pondering, with my teeth" - dan
+
+"I know some things... not many" - clare
+
+"go bad place hurt??? bathroom?" - dan
+
+"don't let disability make you think you can't kill everything" - dan
+
+"Like Troy Bolton, my teeth" - dan
+
+"The more I can make number go up on water bottle machine, the more my life has worth" - dan
+
+"I think Alexander Hamilton was always meant to be a catboy" - dan
+
+"in real life I'm all for democracy, but like..." - anna

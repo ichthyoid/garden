@@ -13,3 +13,5 @@ Hi! Welcome to my new digital garden🌱 Stay a while and pet the cats🐈 This 
 - [[rambles]] : silly little thoughts from my silly little head
 - [[quotes]] : silly thoughts from _others'_ heads
 - [[just the cats]] : meow meow
+- [[reading list]]
+- [[projects]]
