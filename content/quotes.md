@@ -184,8 +184,6 @@ i love my friends so much
 
 "Domain expansion, deluluism... ok I'm gonna go touch grass, I feel that was too many levels of dumbass stapled together... domain expansion, dumbass!" - ryan
 
-"Is the sex worth the trauma?" - Ryan. "If the answer was no you would've lived your life very differently" - max
-
 "I am walking up to heaven and boxing my Creator, his son, and whatever winged fuck made me feel this way" - ryan
 
 "I don't want vagrants in my living room" - ryan

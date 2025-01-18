@@ -15,3 +15,4 @@ Hi! Welcome to my new digital garden🌱 Stay a while and pet the cats🐈 This 
 - [[just the cats]] : meow meow
 - [[reading list]]
 - [[projects]]
+- [[contact]]
