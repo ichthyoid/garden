@@ -261,3 +261,43 @@ i love my friends so much
 "I think Alexander Hamilton was always meant to be a catboy" - dan
 
 "in real life I'm all for democracy, but like..." - anna
+
+"nope! selectively deaf, for the lord" - ryan
+
+"I think when I basically shoot myself in the foot and play hopscotch with my testicles that's a different story" - ryan
+
+"speedrun smtp relay" - ryan
+
+"face fuzzy brain smooth" - ryan
+
+"god damn I used to be hot, what the fuck happened?" - ryan
+
+"at this point I'm not worried about things aging me, I already look like a sugar daddy when I go out with anna" - ryan (1/27/2025)
+
+"perfect! even my sunglasses can have depressions" - ryan
+
+"don't worry, the bombs are for civilians" - ryan
+
+"I improved on god's design" - ryan
+
+"somebody at lockheed martin just got hard! somebody at boeing just went boing!" - ryan
+
+"I'm a little depressy wessy" - unknown, MSU music building
+
+"why can't I get into my skrubhole" - ryan
+
+"I currently need to build a corpse pit in my village" - peter
+
+"You really only have two modes, grandpa and bond villain" - julian (to ryan)
+
+"I'm dangerous when medicated" - ryan
+
+"Gonna be spraying chocolate milk all over the elevator, good lord" - ryan
+
+"Listen, once you put on a fox hat, there's no amount of foxiness that will make me do that" - ryan
+
+"I think that will be determined by the amount of combustibles I can buy before the FBI shows up outside my door" - ryan
+
+"See that's why I love that woman, she's willing to commit atrocities for her own convenience" - ryan
+
+"I have zero inhibitions, zero morality, zero shame, and zero fucks to give" - ryan
