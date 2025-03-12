@@ -301,3 +301,95 @@ i love my friends so much
 "See that's why I love that woman, she's willing to commit atrocities for her own convenience" - ryan
 
 "I have zero inhibitions, zero morality, zero shame, and zero fucks to give" - ryan
+
+"when I build some grand mausoleum to myself, I'll inscribe that on latin on the front" - ryan (see above)
+
+"some days I think i'm the ozymandias of idiots, some days the augustus of morons, most days I know I'm the napoleon of nincompoops" - ryan
+
+"wait what are you adding? are you adding literally what I just said? god damn it" - ryan
+
+"I can't believe I'm getting ratioed by a ghost " - ryan
+
+"get parried! like a platypus!" - ryan
+
+"radiant piss is $180" - ryan
+
+"god is just a suggestion to us" - ryan
+
+"outside of my ego, I don't really raise the bar that much" - ryan
+
+"it's our own personal watergate and we don't even need to climb through a window" - unknown, dream
+
+"she's got hair shears, so she's like 'give me a youtube video and I got it'" - unknown msu music building
+
+"It's so cold out there Miku you'd think you're touching a politicians heart" - ryan
+
+"that's a deep cut in skrub lore" - ryan
+
+"starving together... very c*nty" - ryan
+
+"motivation engagement posting from the donner party... when we starve we starve together" - peter
+
+"is that bear foie gras a la human?" - ryan
+
+"why are you ramming my dirt?" - ryan
+
+"like tai lopez, I'm all about that knowledge" - ryan
+
+"nooo step lion what are you doing? STEP LION NO" - ryan
+
+"did you say rizzly bear" - charlie
+
+"I'm glad I'm not the only moron here" - ryan
+
+"ug found out a new technique for seedmaxxing! hunter gatherers killed by grain pilled agrarian chads!" - peter
+
+"you (ryan) were determined to have the perfect ratio of alcohol tolerance to crayon eating abilities for a US marine" - peter
+
+"die quietly like a good boy" - ryan
+
+"I think god just picked me up and threw me around like a fuckin' ragdoll" - ryan
+
+"let me show you videos of chickens dying " - unknown, msu music building
+
+"you can hurt me in the silicon or the heart, but you gotta pick one" - ryan
+
+"I'd rather die in a ditch than alone" - ryan
+
+"I don't believe in tuning" - Alicia Lawyer, Founder, Artistic Director, and Juilliard-trained Oboist of ROCO
+
+"do it! sniff it!" - Alicia Lawyer, Founder, Artistic Director, and Juilliard-trained Oboist of ROCO
+
+"most important thing is a sense of humor? good thing I'm a god damn clown" - ryan
+
+"ever go through a breakup so bad you get google glass?" - ryan
+
+"me and all the homies with dysentery" - dan
+
+"I'd rather be pretty and a little slow" - ryan
+
+"I have a therapist, she's disappointed with me on a daily basis" - ryan
+
+"I can't think of a person I trust more" - ryan, to marie, while I'm sitting right here
+
+"I don't want the god damn arachno mommy uwus" - ryan
+
+"good carpenter always finds work for himself! go burn a bridge" - ryan
+
+"I either need to drown my sensibility or my hope, I'm not sure which one but something needs to die inside me" - ryan
+
+"I'm dancing my teeth for you and you're not even caring!" - dan
+
+"my soul wants debauchery!" - ryan
+
+"I want you to write it as 'My soouuulll WANTS DEBAUCHeeeERRRY!!'" - ryan
+
+"8 don't stand as a monument to my own will, only giss impotence"\[sic\] - ryan
+
+"am I the things that parents warn their children of" - ryan
+
+"if I could read I'd be very upset right now!" - ryan
+
+"I figured it out! I'm no one's savior, I'm the patron saint of fuckin' morons" - ryan
+
+"If a good man dies by your deeds you know you're doing great" - ryan
